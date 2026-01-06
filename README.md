@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I'm Samuel Gerrard Hamonangan Girsang
+## Hello, I'm Samuel Gerrard Hamonangan Girsang
 
 
 ## 🌐 Socials:
